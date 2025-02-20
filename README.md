@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a studying Industrial Engineering at the MEF University.<br>
+My name is Arda Fırat. I'm a studying Industrial Engineering at the MEF University.<br>
 
 
 ## 🌐 Socials:
